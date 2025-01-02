@@ -79,3 +79,33 @@ To receive developer notifications about release information, sign up to the new
 - [How to documents](http://docs.opencart.com/en-gb/introduction/)
 - [Newsletter](https://newsletter.opencart.com/h/r/B660EBBE4980C85C)
 - [User Voice suggestions](https://opencart.uservoice.com)
+- 
+popular electronic components supplier
+You can find the popular electronic components supplier from below
+
+for transistors and mosfets
+
+https://www.scrtransistor.com
+https://shop.transistorall.com
+https://www.transistor-mosfet.com
+https://www.transistor.top
+https://www.transistorall.com
+https://www.transistorfet.com
+https://www.transistormosfet.com
+https://www.transistors.top
+https://www.transistorsmosfets.com
+
+for integrated circuits 
+
+https://www.activecomponents.top
+https://www.circuitstransistors.com
+https://www.iccircuits.com
+
+https://www.5starcircuits.com
+https://www.ectransistors.com
+https://hot.ectransistors.com
+https://www.integratedcircuits.top
+https://shop.ectransistors.com
+https://shop.transistorscircuits.com
+https://store.ectransistors.com
+https://www.transistorscircuits.com
